@@ -1,4 +1,4 @@
-# 
+# Camtasia for PC | Camtasia for Windows advanced Extension: video-stabilization & multi-track-editing offers the most advanced Camtasia for PC | Camtasia for Windows extension,
 
 
 
